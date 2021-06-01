@@ -22,6 +22,7 @@
 
  - pagine 27 e 28 (immagini 68-70)
  - pagine 29-30 (immagini 72-75) 
+ - pagine 7-8 (immagini 17-20)
 
 ## pagine selezionate (morfologia - manoscritto Ms. fr. 3951/7)
 
